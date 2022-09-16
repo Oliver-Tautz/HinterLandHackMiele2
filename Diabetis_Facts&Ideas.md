@@ -5,7 +5,7 @@
 **elevated blood sugar levels that fall below the threshold to diagnose diabetes mellitus.**
 * **Over half the people who are diagnosed with prediabetes eventually develop type 2 diabetes** 
 * and once diagnosed with prediabetes, **people experience a range of emotions: distress and fear; denial and downplay of risks; guilt and self-criticism;** and self-compassion
-## How often is it?
+## How often is it diagnosed?
 
 ## How is it diagnosed?
 * Prediabetes can be diagnosed by measuring hemoglobin A1c, fasting glucose, or glucose tolerance test.
