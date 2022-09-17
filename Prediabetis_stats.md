@@ -6,6 +6,12 @@
 
 ![image](https://user-images.githubusercontent.com/53008918/190865188-9b6bbc11-e024-43b1-b6b7-19a371d1a38b.png)
 
+# More Stats
+
+![image](https://user-images.githubusercontent.com/53008918/190865522-4c271278-ef9b-48de-ba62-73188531a70b.png)
+![image](https://user-images.githubusercontent.com/53008918/190865547-fcf38411-060f-4d76-af68-69c9cbdd1a17.png)
+![image](https://user-images.githubusercontent.com/53008918/190865562-acad6aa8-a83a-497b-846c-7c6f8710edf3.png)
+
 
 
 # Predispositions
