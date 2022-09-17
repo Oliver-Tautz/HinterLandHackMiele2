@@ -20,3 +20,7 @@
 
 
 
+* structured lifestyle change program can cut their risk of developing type 2 diabetes by 58% [source](https://www.cdc.gov/diabetes/prevention/about.htm)
+* 1 year of plan
+* during the first 6 months of the program, you will meet about once a week.
+* during the second 6 months, you’ll meet once or twice a mont
